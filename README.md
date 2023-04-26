@@ -11,3 +11,4 @@ If you are interested in improving your marketing strategies, this whitepaper ca
 
 
 I hope you find it informative and useful in your endeavors.
+Here is the link to the whitepaper: https://www.canva.com/design/DAFZPgF3gGs/TjqNaywXqEU_XGlXaHK2vA/edit?utm_content=DAFZPgF3gGs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
